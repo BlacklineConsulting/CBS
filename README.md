@@ -1,0 +1,2 @@
+# CBS
+Copenhagen Business School
